@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @StrikerHas6Toes
+- 👀 I’m interested in big booty women
+- 🌱 I’m currently learning how 2 eat ass
+- 💞️ I’m looking to collaborate on probably like sex or something
+- 📫 Reach me on pornhub.com my @ is @StrikerHas9Inches
